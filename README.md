@@ -1,4 +1,14 @@
-## Hi there 👋
+<p align="center"><img src="https://64.media.tumblr.com/96067d55c42a231b5135e0368088e22c/b4b0b73cd632c27f-a0/s2048x3072/e9d41fa328eebc32e54f16e6d990be48915603d9.pnj" width="650" height="600">
+<p align="center"><img src="https://64.media.tumblr.com/e7383e93fddde1250ffc9a033e04a95b/063e6789565ca35e-a3/s540x810/30b24bc6354a358183cd0afaf524f19358a18ee2.gifv" width="450" height="10">
+
+<p align="center"><img src="https://64.media.tumblr.com/a9edef9859132b727ecd9227f7a9c278/938d7da8d855903c-1f/s75x75_c1/220868a84d3865ab3836b325e6617423bd071639.gifv"> skull | 19 | he/him <img src="https://64.media.tumblr.com/73e62aa21c34e638c8f16ccca5e360b5/be64ce39476f8c49-66/s75x75_c1/caf063c008aff7fbb548eb1de7d15e11814e187d.gifv">
+<p align="center"> -
+  <p align="center"><img src="https://64.media.tumblr.com/b1458c6445a6b98c5dccfb2e41194ccb/7313f5396b1282c5-60/s75x75_c1/39546f975f91fba976c508af5a730a43d95f0163.pnj"> lover of all reptiles | autistic + social anxiety, if i don't respond straight away shoot another message/whisper my way, i just get nervous when chatting or forget to respond 😭 i promise it's nothing personal | dating @JammerRaccoon <3 <img src="https://64.media.tumblr.com/3121f798bf70737d2ee2b1bbca45bf1e/083790971a7b0ae6-9b/s75x75_c1/cf4479ce306b3f88e0b92ae1bd3968d1eca4199e.gifv">
+  <p align="center"><img src="https://64.media.tumblr.com/7fef35e8c8fe3e716c37ef79ed4f327e/adbbb1b4ef173cf4-cf/s250x400/243be49917f31e7f6bde8fd9af1a976399d12828.pnj" width="70" height="75"><img src="https://64.media.tumblr.com/7fef35e8c8fe3e716c37ef79ed4f327e/adbbb1b4ef173cf4-cf/s250x400/243be49917f31e7f6bde8fd9af1a976399d12828.pnj" width="70" height="75"><img src="https://64.media.tumblr.com/7fef35e8c8fe3e716c37ef79ed4f327e/adbbb1b4ef173cf4-cf/s250x400/243be49917f31e7f6bde8fd9af1a976399d12828.pnj" width="70" height="75">
+<p align="center"> PROSHIPPERS, DARKSHIPPERS, TCC (especially postal fans who are weeeird about it), ZOOPHILES, ALL THE NASTIES DNI. please also DNI if you're under 18!!
+  <p align="center"> Have a Krotchy day!<img src="https://64.media.tumblr.com/92dfdf46de87e143eff6f16cc9128249/0c97c6aa4a85d3dd-f9/s100x200/928fd20b832f733830bcbe868fde881432488026.gifv">
+
+  <p align="center"><img src="https://64.media.tumblr.com/23f226cc1973bd9c8fee0f9c88259ad8/ac84049bb4b2b95a-d7/s100x200/782dd7cc42de8279dfd3c83f0ea130b882073816.pnj"><img src="https://64.media.tumblr.com/0887a42e3f0b136b6840aedd855705f9/0bb369317fa0b498-ef/s500x750/b177897e973802f72793369cc937dd30d1e4433d.pnj" width="115" height="60"><img src="https://64.media.tumblr.com/4ec72b354de7326858e8d8f3b38550ef/7fd652550e885837-6b/s100x200/d0536be10e756e2df904e5ea79210b5bfed8f933.pnj" width="115" height="60"><img src="https://64.media.tumblr.com/e56239cab50ffe3893d19851c98ec809/4f11951e6247930b-18/s100x200/60e40b610991aa3adbc9669792821ca2a4341339.gifv" width="115" height="60">
 
 <!--
 **sulkingskullz/sulkingskullz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
